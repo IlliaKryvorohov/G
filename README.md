@@ -1,0 +1,2 @@
+# G
+G language idea
